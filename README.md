@@ -1,3 +1,3 @@
 # mini-project
 don't try us Aitha
-kill me Lelo
+kill me Lelo isimbi(I am tired)
